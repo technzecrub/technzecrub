@@ -1,5 +1,5 @@
 ## Hello stranger, or perhaps a friend of mine. Welcome back to my page.
-### [Patreon Link](patreon.com/Reded72) , [Ata.Book Link](https://techniz.atabook.org/) , [Pronouns Page Link](
+### [Patreon Link](patreon.com/Reded72) , [Ata.Book Link](https://techniz.atabook.org/) , [Pronouns Page Link](https://en.pronouns.page/@Technizochrome)
 > Straw.Page is in the making, keep an eye out on Patreon
 
 > ![images-removebg-preview](https://github.com/user-attachments/assets/7673177e-71ff-4b5d-b20b-f22d9af255d5)
